@@ -1,0 +1,2 @@
+# NotScam
+ Joke website lol
